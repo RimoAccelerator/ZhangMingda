@@ -37,3 +37,23 @@
 # 公安机关立案告知书
 
 ![](img3.jpg)
+
+# Zhang Mingda, Tsinghua & CAS Student, Accused of Sexual Assault
+
+I, Yumiao Ma, owner of the WeChat public account "Ritamatabishoujo," am coming forward to expose the sexual assault I endured at the hands of Mingda Zhang between late 2017 and 2018. Mingda Zhang was an undergraduate student in the Department of Chemistry at Tsinghua University from 2014 to 2019 and is currently a doctoral student in the Yuanping Yi's research group at the Institute of Chemistry, Chinese Academy of Sciences.
+
+Mingda Zhang, a man of considerable influence, has relentlessly bombarded Tencent with complaints, demanding the removal of content related to this matter. Despite some of his complaints being dismissed, his sheer volume of submissions has resulted in censorship. He claims to have reported the matter to the police and initiated legal proceedings against me for "fabrication and defamation" – the audacity of a perpetrator, a potential criminal, seeking to punish his victim!
+
+My situation is not unique. Countless others face the same struggle. Inadequate sex education leaves many victims unaware of the nature of their abuse and where to seek help. By the time we gain sufficient social experience, it often feels too late. Sexual assault is often a sudden, predatory act, occurring in isolated locations, leaving victims without evidence. When survivors find the courage to speak out, they are often met with accusations of fabrication and slander. Perpetrators rarely reflect on their actions; they will not hold themselves accountable. Instead, they inflict further harm on their victims to protect themselves. They are the vampires of our society.
+
+But there is no reason for victims to remain silent. Anyone who tries to silence me will face my resistance. This is the right thing to do.
+
+My first post about him, titled "Sexual Assault within the Chemistry Baidu Tieba Moderation Team," revealed his presence within the group after I was banned and my posts deleted. His familiarity stemmed from the fact that he was the individual who assaulted me around 2018.
+
+He displayed an unusual interest in me, seemingly natural at first. We had known each other online through the Chemistry Baidu Tieba since high school. As a small-town student new to Beijing, I readily trusted a local, an upperclassman to whom my family had entrusted my care. He pursued me, while I generally kept my distance from others. Around 2017-2018, his behavior became increasingly forward, and I failed to recognize the underlying danger. He frequently invited me on late-night walks, which I reluctantly tolerated. During these walks, he would suddenly try to force his lips onto mine. After I recoiled from his forced kisses, he feigned innocence, asking, "Haven't you done this before?"
+
+His actions forced me to distance myself, but he persisted, a clinging shadow. One night, he dragged me into a small wooded area and attempted to choke me. I am unsure of his intentions beyond that.
+
+I fought him off with all my strength. At the time, I faced a struggle beyond sexual violation – a violation of my life itself. I empathized with students and hesitated to confront him. My limited small-town sex education left me unclear about the implications of his actions. It took years to understand that he was a criminal.
+
+His Baidu Tieba ID is "走走," formerly "我与我自己走着". His name is Mingda Zhang (张明达), a former Tsinghua University Chemistry student, class of 2014. Now, he is a member of Yuanping Yi's research group. He has never been punished. Now, he is going to punish me because of "fabrication and defamation", and the only reason is that I said what happened to me exactly.
