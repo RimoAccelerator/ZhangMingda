@@ -38,7 +38,7 @@
 
 ![](img3.jpg)
 
-# Zhang Mingda, Tsinghua & CAS Student, Accused of Sexual Assault
+# Mingda Zhang, Tsinghua & CAS Student, Accused of Sexual Assault
 
 I, Yumiao Ma, owner of the WeChat public account "Ritamatabishoujo," am coming forward to expose the sexual assault I endured at the hands of Mingda Zhang between late 2017 and 2018. Mingda Zhang was an undergraduate student in the Department of Chemistry at Tsinghua University from 2014 to 2019 and is currently a doctoral student in the Yuanping Yi's research group at the Institute of Chemistry, Chinese Academy of Sciences.
 
